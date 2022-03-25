@@ -7,18 +7,24 @@ asdfasdfasfasfsadfasfsdfasdfsdfgit
 
 dfasdfasrtersfgasdfffgasdfsdf
 
-asdfasdfasdfasdffsdf
+asdfasdㄹasdfasdffsdfㄴㅇㄹㄴㅇㄹㄴㅇㄹ
 
 asdfasdf
-
-asdfasdfasf
-
-asdfasdf
-
-sdfasfas
-df
+ㄹㄴㅇㄹㄹㄴㅇㄹㄴㄹㄴㄹㄴㄹㄴㅇㄹㄴ
+ㅁㄴㅇㄹㅁㄴㅇㄹㄴㅁㅇㄹㅁㄴㅇㄹ
+ㅁㄴㅇㄹㅁㄴㅇㄹ
+ㅁㄴㅇㄹㅁㄴㅇㄹㅁㄴㄹ
 
 
-양민지 바보
+ㅁㄴㅇㄹㅁㄴ
+ㅁㄴㅇㄹㅁㄴㅇㄹ
+ㅁㄴㅇㄹ
+ㅁㄴㅇㄹ
+ㅁㄴㅇㄹ
+ㅁㄴㅇㄹ
+ㄴㅇㄹ
+ㅁㄴㅇㄹ
+ㄴㅇㄹㅁㄴㄹㄷㄱㄹㄴㅎㅁㄴㄹㄴㅇㄹㅁ
+ㅎㄱㄹㅎㅈㄷㄱㄹㅁㄴㅇㄹㄷㄱㄹㅁㄴㅇㄹㅈㄹㅂㅈㄷㄲㅎㄱㅅㅂㅈㄷㄱㄹㅁㄴㅇㄹㅂㅈㄷㅂㅈㄹㅂㅈㄱㄷㄹㅂㄱㄹ
 
 
